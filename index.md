@@ -1,3 +1,3 @@
 ## Heather's Website
 
-Mom, Entreprenuer, Geek
+Just a placeholder, more may come soon.
